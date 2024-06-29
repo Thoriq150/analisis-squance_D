@@ -1,0 +1,1 @@
+# analisis-squance_D
